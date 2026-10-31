@@ -1,2 +1,0 @@
-# Vedant-Sawant
-Decoy ps
